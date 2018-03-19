@@ -1,0 +1,3 @@
+Omicron
+Dr.Code
+Semicolon 
